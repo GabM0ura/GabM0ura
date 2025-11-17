@@ -1,4 +1,4 @@
-👋 Hi there! I'm Arthur
+👋 Hi there! I'm Gabriel
 
 A little about me...
 
